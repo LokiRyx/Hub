@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Loki Ryx
+- 👋🏼 Hi, I’m Loki Ryx
 - 👀 I’m interested in mistakes
 - 🌱 I’m currently learning something new
 - 💞️ I’m looking to collaborate on differences
